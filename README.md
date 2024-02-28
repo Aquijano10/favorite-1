@@ -6,6 +6,8 @@
 - Inclusion. Overall, I've found the muay thai community in specific to be incredibly inclusive. 
 Regardless of background, disabilities or age, everyone gets the same quality in training.
 
+[Here is: How To Get Started in Muay Thai](https://www.youtube.com/watch?v=VglKHvHDtPw)
+  
 ![fighters training in gym](capture.jpg)
 
 More information
